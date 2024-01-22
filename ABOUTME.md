@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @clopezpagan
+👋 Hi, I’m @clopezpagan
 🚀 About Me
 
 💡 I enjoy tackling challenges and solving problems, particularly in the realm of the aerospace and manufacturing industry.
